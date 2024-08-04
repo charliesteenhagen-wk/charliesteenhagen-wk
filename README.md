@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Charlie Steenhagen @charliesteenhagen-wk
 - 👀 I’m interested in WAY too many things, but notably:
-  - Hanging with my wife and dogs
+  - Hanging with my wife, daughter and dogs
   - Content Creation on my YouTube channel -- [Modern Hobbyist](https://www.youtube.com/c/modern-hobbyist)
   - CrossFit at [Iridium CrossFit](https://www.iridiumcrossfit.com/)
   - Triathlons
